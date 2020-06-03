@@ -1,0 +1,1 @@
+# All of these examples are personal projects of mine that I completed by myself and I would be more than happy to provide more API samples or even non-API examples, just let me know. Thanks again for considering me for this position, it sounds very exciting and I would enjoy taking on this develpment position and create a product that users would love.
